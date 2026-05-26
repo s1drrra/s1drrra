@@ -1,43 +1,39 @@
+₊⊹  ʜɪ! ɪᴍ ꜱɪᴅʀᴀ / ᴍᴀɴʏᴀ ˖᯽
 
+݁˖  ɪᴍ ᴇꜱᴛᴘ , #ʀᴏʟᴇᴘʟᴀʏʟᴏᴠᴇʀ , ᴍʏ ʙɪʀᴛʜᴅᴀʏ ɪꜱ 17 ᴊᴜɴᴇ ˊˎ- 
 
-₊⊹  hi! Im sidra / manya ˖᯽ ݁˖
+──── ୨୧ ────  
 
-im ESTP , #roleplaylover , my birthday is 17 june ˊˎ-
+ᯓ  ᴍʏ ᴍᴀɪɴ ꜰᴀɴᴅᴏᴍꜱ ᴀʀᴇ…  
 
-──── ୨୧ ────
+ɢʀᴀᴠɪᴛʏ ꜰᴀʟʟꜱ , ꜱQᴜɪᴅ ɢᴀᴍᴇ , ᴅᴇꜱᴘɪᴄᴀʙʟᴇ ᴍᴇ , ᴍʀ & ᴍʀꜱ ꜱᴍɪᴛʜ , ᴡɪɴ ᴏʀ ʟᴏꜱᴇ , ꜱᴏᴜᴛʜ ᴘᴀʀᴋ , ɪɴꜱɪᴅᴇ ᴊᴏʙ , ꜰɪɢʜᴛ ᴄʟᴜʙ , ᴛʜᴇ ᴀᴍᴀᴢɪɴɢ ᴡᴏʀʟᴅ ᴏꜰ ɢᴜᴍʙᴀʟʟ  
 
-ᯓ  my main fandoms are…
+ᴀɴᴅ ᴍᴜᴄʜ ᴍᴏʀᴇ… ꣑ৎ  
 
-gravity falls , squid game , despicable me , mr & mrs smith , win or lose , south park , inside job , fight club , the amazing world of gumball
+ᯓ  ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴍᴜꜱɪᴄᴀʟ ᴘᴇʀꜰᴏʀᴍᴇʀꜱ ᴀʀᴇ…  
 
-and much more… ꣑ৎ
+валентин стрыкало , щенки , овсянкин , кузнецкий сквад , 163ᴏɴᴍʏɴᴇᴄᴋ , ɢᴏɴᴇ.ꜰʟᴜᴅᴅ , ᴍᴏʀɢᴇɴꜱʜᴛᴇʀɴ , ꜰᴀᴄᴇ , ᴘʜᴀʀᴀᴏɴ , ᴋᴇᴍᴘᴇʟ , ᴛ.ᴀ.ʟᴏᴄ , ʙʙɴᴏ$ , ᴢʜᴀɴᴜʟᴋᴀ ,ᴛʏʟᴇʀ ᴛʜᴇ ᴄʀᴇᴀᴛᴏʀ  
 
-ᯓ  my favorite musical performers are…
+ᴀɴᴅ ᴍᴜᴄʜ ᴍᴏʀᴇ… ✶⋆.˚  
 
-валентин стрыкало , щенки , овсянкин , кузнецкий сквад , 163ONMYNECK , GONE.Fludd , MORGENSHTERN , FACE , PHARAON , KEMPEL , T.A.Loc , bbno$ , zhanulka ,Tyler the creator
+ᯓ  ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ɢᴀᴍᴇꜱ ᴀʀᴇ…  
 
-and much more… ✶⋆.˚
+ʀᴏʙʟᴏx , ᴍᴏʀᴛᴀʟ ᴋᴏᴍʙᴀᴛ , ʟɪꜰᴇ ɪꜱ ꜱᴛʀᴀɴɢᴇ , ꜱᴡᴏᴏɴɪɴɢ ᴏᴠᴇʀ ꜱᴛᴀɴꜱ  
 
-ᯓ  my favorite games are…
+ᯓ  ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ ᴀʀᴇ...  
 
-roblox , mortal kombat , life is strange , swooning over stans
+ᴍᴀʙᴇʟ ᴘɪɴᴇꜱ , ᴘᴀᴄɪꜰɪᴄᴀ ɴᴏʀᴛʜᴡᴇꜱᴛ , ꜱᴛᴀɴʟᴇʏ ᴘɪɴᴇꜱ , ᴛʜᴀɴᴏꜱ / ꜱᴜ-ʙᴏɴɢ , ꜰᴇʟᴏɴɪᴏᴜꜱ ɢʀᴜ , ʏᴜᴡᴇɴ ᴡᴀɴɢ , ᴇʀɪᴄ ᴄᴀʀᴛᴍᴀɴ , ᴡᴇɴᴅʏ ᴛᴇꜱᴛᴀʙᴜʀɢᴇʀ , ʀᴀɴᴅ ʀɪᴅʟᴇʏ , ɢᴜᴍʙᴀʟʟ ᴡᴀᴛᴛᴇʀꜱᴏɴ
 
-ᯓ  my favorite characters are...
+ᴀɴᴅ ᴍᴜᴄʜ ᴍᴏʀᴇ… ˚. ᵎᵎ 
 
-mabel pines , pacifica northwest , stanley pines , thanos / su-bong , felonious gru , yuwen wang , eric cartman , wendy testaburger , rand ridley , gumball watterson
+──── ୨୧ ────  
 
-and much more… ˚. ᵎᵎ
+ᯓ  ᴍʏ ᴋɪɴɴꜱ ᴀʀᴇ...  
 
-──── ୨୧ ────
+ᴛʜᴀɴᴏꜱ "ꜱQᴜɪᴅ ɢᴀᴍᴇ" , ꜱᴛᴀɴʟᴇʏ "ɢʀᴀᴠɪᴛʏ ꜰᴀʟʟꜱ" , ᴛʏʟᴇʀ "ᴛᴜʀɴɪɴɢ ʀᴇᴅ" , ʏᴜᴡᴇɴ "ᴡɪɴ ᴏʀ ʟᴏꜱᴇ" , ɢᴜᴍʙᴀʟʟ "ᴛʜᴇ ᴀᴍᴀᴢɪɴɢ ᴡᴏʀʟᴅ ᴏꜰ ɢᴜᴍʙᴀʟʟ" ۶۟ৎ  
 
-ᯓ  my kinns are...
+──── ୨୧ ────  
 
-thanos "squid game" , stanley "gravity falls" , tyler "turning red" , yuwen "win or lose" , gumball "the amazing world of gumball" ۶۟ৎ
+₊ ⊹ ᴍʏ ᴛᴇʟᴇɢʀᴀᴍ: @ꜱ1ᴅʀʀʀᴀ   
 
-──── ୨୧ ────
-
-₊ ⊹ my telegram: @s1drrra 
-
-₊ ⊹ my discord: @s1drrra
-
-
+₊ ⊹ ᴍʏ ᴅɪꜱᴄᴏʀᴅ: @ꜱ1ᴅʀʀʀᴀ₊⊹ 
