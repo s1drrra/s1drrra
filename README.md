@@ -1,5 +1,6 @@
-<img src="https://assets.pinterest.com/ext/embed.html?id=14144186324539269" height="294" width="450" frameborder="0" scrolling="no">
-                     
+<p align="center">
+<img src="https://i.pinimg.com/originals/d6/fb/73/d6fb739a64ddea7e6831acc642036a26.gif" width="55%">
+</p>
 
                                                        ₊⊹  ʜɪ! ɪᴍ ꜱɪᴅʀᴀ / ᴍᴀɴʏᴀ ˖᯽
 
@@ -49,4 +50,5 @@
 
                                                           ₊ ⊹ ᴍʏ ᴛᴇʟᴇɢʀᴀᴍ: @ꜱ1ᴅʀʀʀᴀ   
 
-                                                         ₊ ⊹ ᴍʏ ᴅɪꜱᴄᴏʀᴅ: @ꜱ1ᴅʀʀʀᴀ₊⊹ 
+                                                         ₊ ⊹ ᴍʏ ᴅɪꜱᴄᴏʀᴅ: @ꜱ1ᴅʀʀʀᴀ₊⊹
+
