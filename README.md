@@ -1,3 +1,6 @@
+<img src="https://assets.pinterest.com/ext/embed.html?id=14144186324539269" height="294" width="450" frameborder="0" scrolling="no">
+                     
+
                                                        ₊⊹  ʜɪ! ɪᴍ ꜱɪᴅʀᴀ / ᴍᴀɴʏᴀ ˖᯽
 
                                           ݁˖  ɪᴍ ᴇꜱᴛᴘ , #ʀᴏʟᴇᴘʟᴀʏʟᴏᴠᴇʀ , ᴍʏ ʙɪʀᴛʜᴅᴀʏ ɪꜱ 17 ᴊᴜɴᴇ ˊˎ- 
