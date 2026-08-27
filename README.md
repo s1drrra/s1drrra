@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://assets.pinterest.com/ext/embed.html?id=30821578697150556" width="55%">
+<img width="736" height="420" alt="тгк secheniek   _ #squidgame #namgyu #thanos…" src="https://github.com/user-attachments/assets/c0d1ba43-dca8-474e-bd0f-4ee556c91b4c" /> width="55%">
 </p>
 
                                                        ₊⊹  ʜɪ! ɪᴍ точка / ᴍᴀɴʏᴀ ˖᯽
